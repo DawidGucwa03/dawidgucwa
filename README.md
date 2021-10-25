@@ -1,2 +1,2 @@
 # dawidgucwa
-praca internetowe
+dejwid g no niezle :D
